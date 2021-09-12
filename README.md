@@ -1,2 +1,2 @@
-# Info-I494
-My Name is Ryan Glasgow I am 22 years old, I am currently attending school to get a bachelors in informatics and a cognate in game design. In the future I wish to create my own game based on a story of my creation and have it become super successful. 
+# Info I494
+ 
